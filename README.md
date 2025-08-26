@@ -1,2 +1,6 @@
 # woofwoof
-wip wooahh
+𓈒　　　　chance / max　　e　　⌓⌓
+
+iwc　﹠　poly
+
+　﹒　︵︵　　e　　❜
